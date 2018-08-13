@@ -11,3 +11,5 @@
 [去泰国旅游，最好知道这些事哦](https://www.jianshu.com/p/08ddaca6eebd)
 
 [这是一份最全的泰国旅游攻略](https://zhuanlan.zhihu.com/p/32179511)
+
+[Github泰旅攻略](https://github.com/sunfan314/ThailTrip/blob/master/Thail.md)
