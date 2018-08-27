@@ -24,4 +24,3 @@
 
 [泰国自由行好建议 ★★★★](https://www.zhihu.com/question/33977916)
 
-11111
