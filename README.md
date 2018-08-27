@@ -37,3 +37,4 @@
 [7天曼谷+普吉岛自由行](https://www.jianshu.com/p/b23279452e17?utm_campaign=maleskine&utm_content=note&utm_medium=seo_notes&utm_source=recommendation)
 
 [泰国自由行好建议 ★★★★](https://www.zhihu.com/question/33977916)
+
