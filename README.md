@@ -21,3 +21,5 @@
 [精华攻略】泰国，女人的世界，男人的天堂（曼谷芭堤雅6日自由行攻略）](https://www.jianshu.com/p/9b287e0247a7?utm_campaign=maleskine&utm_content=note&utm_medium=seo_notes&utm_source=recommendation)
 
 [7天曼谷+普吉岛自由行](https://www.jianshu.com/p/b23279452e17?utm_campaign=maleskine&utm_content=note&utm_medium=seo_notes&utm_source=recommendation)
+
+[泰国自由行好建议 ★★★★](https://www.zhihu.com/question/33977916)
