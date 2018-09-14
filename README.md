@@ -251,4 +251,4 @@
 [1-7]: ./images/tgbk.png
 [1-8]: ./images/mg.jpg
 [1-9]: ./images/bty.jpg
-[1-10]: ./image/dt.png
+[1-10]: ./images/dt.png
